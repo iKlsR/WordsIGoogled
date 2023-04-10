@@ -21,3 +21,9 @@ Definition - A sample strip cut from a piece of material, A representative porti
 Best guess - *mix of propose and offer, basically propose something*
 
 Definition - To offer for acceptance; tender
+
+### rigmarole
+
+Best guess - *run around, confusing verbiage* (originally heard in a video as "rigamarole", have heard it a few times prior but used context to assume the guess)
+
+Definition - Confused, rambling, or incoherent discourse; nonsense
