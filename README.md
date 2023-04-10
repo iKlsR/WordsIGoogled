@@ -1,6 +1,6 @@
 # Words I Googled
 
-Below are a list of words I encountered in either books, traditional media or conversations that I didn't know the explicit meaning of. Some of these can be discerned by context and will show my best guess at the time and then the actual meaning once looked up. *If there exists an online link for where I found the word I will include that as well*. After the first year I will archive the years in their own files. For brevity and keeping everything organized I will choose the shortest definitions.
+Here is a list of words that I've come across in books, traditional media, or conversations that I didn't know the explicit meaning of. Some of these can be discerned by context and will show my best guess at the time then the actual meaning once looked up. *If there exists an online link for where I found the word I will include that as well*. After the first year I will archive the years in their own files. For brevity I will choose the shortest definitions.
 
 # 2023
 
