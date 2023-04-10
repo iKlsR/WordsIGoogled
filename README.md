@@ -16,13 +16,13 @@ Best guess - *sample of something, akin to colors?*
 
 Definition - A sample strip cut from a piece of material, A representative portion; a sample
 
-### (10/4/2023) **proffered** from [We Need To Talk About Vercel](https://www.maxcountryman.com/articles/we-need-to-talk-about-vercel)
+### (10/4/2023) proffered - [We Need To Talk About Vercel](https://www.maxcountryman.com/articles/we-need-to-talk-about-vercel)
 
 Best guess - *mix of propose and offer, basically propose something*
 
 Definition - To offer for acceptance; tender
 
-### rigmarole
+### (10/4/2023) rigmarole
 
 Best guess - *run around, confusing verbiage* (originally heard in a video as "rigamarole", have heard it a few times prior but used context to assume the guess)
 
