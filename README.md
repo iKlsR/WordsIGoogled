@@ -27,3 +27,9 @@ Definition - To offer for acceptance; tender
 Best guess - *run around, confusing verbiage* (originally heard in a video as "rigamarole", have heard it a few times prior but used context to assume the guess)
 
 Definition - Confused, rambling, or incoherent discourse; nonsense
+
+### (19/4/2023) confabulated
+
+Best guess - Make up, go offtopic
+
+Definition - To fill in gaps in one's memory with fabrications that one believes to be facts. To talk casually; chat. 
